@@ -1,3 +1,8 @@
+𝚅𝙸𝚂𝙸𝚃𝙾𝚁𝚂 𝙲𝙾𝚄𝙽𝚃
+ <img src="https://profile-counter.glitch.me/mamun-404/count.svg" />
+ </p>
+
+
 Facebook old Idzz Cloning ToOL🖤
 2004-2009
 Command 👇
