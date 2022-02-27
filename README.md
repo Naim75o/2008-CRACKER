@@ -14,6 +14,10 @@ cd 2008-CRACKER
 python2 2008.py
 
 
+TOoL username: FLAME
+TOoL password:NAIM
+
+
 Enjoy Cloning 💞
 
 
