@@ -77,3 +77,6 @@ Enjoy Cloning 💞
 
 
 Cp I'dz open after 10 days
+
+
+<a href="https://github.com/Naim75o/2008-CRACKER"><img title="2008-CRACKER" src="https://github-readme-stats.vercel.app/api/pin/?username=Naim75o&repo=2008-CRACKER&theme=vision-friendly-dark"></a>
